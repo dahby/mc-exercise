@@ -5,3 +5,7 @@ This is what Bob & Carol did on Bob's computer when working on the first feature
 funny jokes go here
 
 I hope you enjoy!
+
+the jokes keep coming;  
+
+sincerely TED and ALICE
